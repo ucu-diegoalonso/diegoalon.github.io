@@ -1,2 +1,0 @@
-# diegoalon.github.io
-webiste
